@@ -8,6 +8,6 @@ Wednesday is an American coming-of-age supernatural comedy horror television ser
 - “I Read Serial Killer Diaries With Better Punctuation.”
 - “They Couldn't Even Spring For Real Pig's Blood!”
 - “If You Hear Me Screaming Bloody Murder. There's A Good Chance I'm Enjoying Myself”
-- “Sometimes I Act Like I Don't Care If People Like Me...”
+- “Sometimes I Act Like I Don't Care If People Like Me..”
 
 
